@@ -1,0 +1,1 @@
+# dmit-corona-cmin2
